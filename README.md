@@ -1,1 +1,0 @@
-# Miss-o-do-edital-AI-Brasil
